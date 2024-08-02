@@ -12,3 +12,10 @@ July 22, 2024
 gotta get on it bruh <3 31
 
 August 1st
+August 2 
+Its Friday, i didnt notice it was friday already i thought we had 
+one more day of the week
+where has the day gone, i feel like they blend a little now, 
+but that good for now (y)
+
+
