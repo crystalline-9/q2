@@ -18,4 +18,7 @@ one more day of the week
 where has the day gone, i feel like they blend a little now, 
 but that good for now (y)
 
+August 6th
+It was a long weekend, i wasnt prepared 4 it
+moved to Gail and Dans this weekend (y)
 
