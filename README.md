@@ -22,3 +22,8 @@ August 6th
 It was a long weekend, i wasnt prepared 4 it
 moved to Gail and Dans this weekend (y)
 
+August 7th
+no comment
+
+
+
