@@ -26,5 +26,11 @@ August 7th
 no comment
 no comment x2
 
+Aug 8 
+activity
+dragons
+(y)
+
+
 
 
