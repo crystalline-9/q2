@@ -43,3 +43,9 @@ EPZ reading
 oooohboyohboy
 boop
 
+oooppp missed aug 13
+was busy
+
+Aug 14 Wed
+2 more days to weekendddd
+
