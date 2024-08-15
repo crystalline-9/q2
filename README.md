@@ -49,3 +49,7 @@ was busy
 Aug 14 Wed
 2 more days to weekendddd
 
+Thursday Aug 15
+Today was a shitshow
+something has beeeeen uuuuh started? oooop ¯\_(ツ)_/¯
+
