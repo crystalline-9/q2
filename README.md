@@ -53,3 +53,6 @@ Thursday Aug 15
 Today was a shitshow
 something has beeeeen uuuuh started? oooop ¯\_(ツ)_/¯
 
+Aug 16 
+iiitttsssss friiiiidaaayyy
+
