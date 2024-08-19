@@ -56,3 +56,6 @@ something has beeeeen uuuuh started? oooop ¯\_(ツ)_/¯
 Aug 16 
 iiitttsssss friiiiidaaayyy
 
+Aug 19
+no
+
