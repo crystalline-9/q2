@@ -66,3 +66,27 @@ yup yup
 21
 aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
+mother 
+
+ of 
+
+ all
+
+ that
+
+ is 
+
+ Holy
+
+ ...anyways 
+
+ Aug 23 - Friday 
+
+ maybe 
+
+ or what was it
+
+ unless
+
+ 
+
