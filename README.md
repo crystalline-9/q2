@@ -92,5 +92,10 @@ Aug 26
 text hbd <
 
 Aug 27 - we r an ocean <3
+
+Aug 28
+oh my 
+good Lord 
+<3
  
 
