@@ -97,5 +97,8 @@ Aug 28
 oh my 
 good Lord 
 <3
+
+rly wanna drink eeevery night tho lol
+whiskey, i miss you bby :*
  
 
