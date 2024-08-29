@@ -98,6 +98,11 @@ oh my
 good Lord 
 <3
 
+Aug 29th
+Im a little teapot
+feels like rolling waves bbyyy <3 ;)
+
+
 rly wanna drink eeevery night tho lol
 whiskey, i miss you bby :*
  
