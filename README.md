@@ -105,5 +105,8 @@ feels like rolling waves bbyyy <3 ;)
 
 rly wanna drink eeevery night tho lol
 whiskey, i miss you bby :*
+
+30-08-2024
+fridaayyyyy
  
 
