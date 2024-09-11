@@ -130,3 +130,8 @@ remember 090909 yeeeeee
   9/11 2024
  jonestly idek 
 
+ .2 
+ i feel a lil dead inside
+
+ mayb a lot idk
+
