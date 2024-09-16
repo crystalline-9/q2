@@ -144,3 +144,6 @@ remember 090909 yeeeeee
  09-13-2024
  fridayyyyy
 
+ 16-09-2024
+ AADS Harvs 2024 first day today, ive missed them <3 well see if its still there 
+
