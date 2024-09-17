@@ -147,3 +147,6 @@ remember 090909 yeeeeee
  16-09-2024
  AADS Harvs 2024 first day today, ive missed them <3 well see if its still there 
 
+17-09-2024
+psychadelics harv lec
+Chicago was spicy 
