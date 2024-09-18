@@ -150,3 +150,9 @@ remember 090909 yeeeeee
 17-09-2024
 psychadelics harv lec
 Chicago was spicy 
+
+
+18-09-2024
+today was not terrible 
+(y)
+lots of things to dooooododoodododo <3
