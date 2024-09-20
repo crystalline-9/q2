@@ -163,3 +163,8 @@ lots of things to dooooododoodododo <3
 
 19-09-2024
 interns???
+it was phishing lolol
+
+20-09-2024
+friday
+DADAS Birthdayyyy!!!! :D
