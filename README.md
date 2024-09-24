@@ -177,3 +177,9 @@ imy..
 dumb..
 again.
 s.t.o.p.
+
+focusing on happy (y)
+how you spend your days
+of course
+is how you spend your life
+<3
